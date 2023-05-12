@@ -1,1 +1,1 @@
-# 22310171-takahashi22310171-takahashi
+# 22310171-takahashi
